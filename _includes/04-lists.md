@@ -1,0 +1,3 @@
+- Playing Disc Golf
+- Hanging with good friends
+- Visiting Cities
