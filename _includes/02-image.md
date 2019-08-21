@@ -1,1 +1,1 @@
-! [Movie Poster](https://images.app.goo.gl/VhS6K3UFCMtgb4Mb9)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
