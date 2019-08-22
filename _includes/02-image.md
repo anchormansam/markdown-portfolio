@@ -1,1 +1,1 @@
-![Bobby Zelda](https://slack-files.com/TKV4DCHDH-FMMCH2LQM-31453e4054)
+![Bobby Zelda](https://bootcamp-f19.slack.com/files/UL8LDUBN2/FMMCH2LQM/bobby_zelda.jpg)
